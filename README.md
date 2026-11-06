@@ -1,2 +1,2 @@
-# Panamblo
-Jnag Dae pa World !
+# PANAMBLO
+Welcome DAEPA WORLD !
